@@ -1,4 +1,4 @@
-# 
+# Get the ultimate opensea sniper bot with AI-powered opensea sniper bot | trailing-stop + slippage-control. Featuring trailing-stop and slippage-control, it's the best choice for
 
 
 
